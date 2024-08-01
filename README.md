@@ -4,7 +4,7 @@
 - estou procurando a colaborar com as tecnologias da minha escola
 - eu sou uma pessoa ansiosa 
 - ela-dela
-- ⚡ Fun fact: ...
+- se as coisas nao sair como eu quero eu surto , fico brava  e revoltada.
 
 <!---
 natymoreira23/natymoreira23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
